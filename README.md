@@ -1,4 +1,4 @@
-<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=pt-fashion&label=fashioners&color=blue">
+<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=pt-fashion&label=fashioners&color=white">
 
 </p>
 

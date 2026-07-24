@@ -1,3 +1,7 @@
+<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=glxcierx&label=bunnies&color=blue">
+
+</p>
+
 <p align="center">
 PonyTown Fashion
 

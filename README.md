@@ -11,7 +11,7 @@ PonyTown Fashion
 
 </p>
 
-<p align="center"> Suggest someone !   <a href="https://ptfashion.straw.page">Strawpage</a>
+<p align="center"> Nominate someone !   <a href="https://ptfashion.straw.page">Strawpage</a>
 
 </p></p>
 

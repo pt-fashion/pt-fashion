@@ -7,7 +7,7 @@ PonyTown Fashion
 
 </p>
 
-<p align="center">Starting On August 1st
+<p align="center">Adding People On August 1st
 
 </p>
 

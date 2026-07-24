@@ -7,4 +7,4 @@ PonyTown Fashion
 
 </p>
 
-<p align="center"> Suggest someone ! 
+<p align="center"> Suggest someone !   <a href="https://ptfashion.straw.page">Strawpage</a>

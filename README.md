@@ -13,10 +13,7 @@ PonyTown Fashion
 
 <p align="center"> Suggest someone !   <a href="https://ptfashion.straw.page">Strawpage</a>
 
-</p>
-
-
-</p>
+</p></p>
 
 Pretties Ponies :
 

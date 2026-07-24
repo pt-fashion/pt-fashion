@@ -12,3 +12,23 @@ PonyTown Fashion
 </p>
 
 <p align="center"> Suggest someone !   <a href="https://ptfashion.straw.page">Strawpage</a>
+
+</p>
+
+Pretties Ponies :
+
+</p>
+
+Cutest Ponies :
+
+</p>
+
+Prettiest Tinted Ponies :
+
+</p>
+
+Coolest Ponies :
+
+</p>
+
+Prettiest Github :

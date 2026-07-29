@@ -23,11 +23,11 @@ Cutest Ponies : [@5poke](https://github.com/5poke) , [@gamblersi](https://github
 
 </p>
 
-Prettiest Tinted Ponies : [@MoriouChoRadio](https://github.com/MoriouChoRadio) , [@electrifypink](https://github.com/electrifypink) , [@joosbocks](https://github.com/joosbocks) , [@AcxerSonnellino](https://github.com/AcxerSonnellino)
+Prettiest Tinted Ponies : [@MoriouChoRadio](https://github.com/MoriouChoRadio) , [@electrifypink](https://github.com/electrifypink) , [@joosbocks](https://github.com/joosbocks) , [@AcxerSonnellino](https://github.com/AcxerSonnellino) , [@hamfoolish](https://github.com/hamfoolish) , [@kniferrific](https://github.com/kniferrific)
 
 </p>
 
-Coolest Ponies : [@zouweemama](https://github.com/zouweemama) , [@Xaplastcore](https://github.com/Xaplastcore) , [@decayingcorpses](https://github.com/decayingcorpses) , [@horroryaoi](https://github.com/horroryaoi) , [@Infugue](https://github.com/Infugue) , [@141ZXR](https://github.com/141ZXR) , [@01-800-PAPU](https://github.com/01-800-PAPU) , [@timaeustt](https://github.com/timaeustt) , [@sorrowzxx](https://github.com/sorrowzxx) , [@arrowhazard](https://github.com/arrowhazard) , [@DOR-fic](https://github.com/DOR-fic) , [@monachgrievings](https://github.com/monachgrievings) , [@SORBETFLAKES](https://github.com/SORBETFLAKES) , [@enumaellsh](https://github.com/enumaellsh) , [@itrap-2245](https://github.com/itrap-2245) , [@Voidirusbli](https://github.com/Voidirusbli) , [@2099s](https://github.com/2099s) , [@kiwiconicc](https://github.com/kiwiconicc) , [@AshesOfHerHalo](https://github.com/AshesOfHerHalo)
+Coolest Ponies : [@zouweemama](https://github.com/zouweemama) , [@Xaplastcore](https://github.com/Xaplastcore) , [@decayingcorpses](https://github.com/decayingcorpses) , [@horroryaoi](https://github.com/horroryaoi) , [@Infugue](https://github.com/Infugue) , [@141ZXR](https://github.com/141ZXR) , [@01-800-PAPU](https://github.com/01-800-PAPU) , [@timaeustt](https://github.com/timaeustt) , [@sorrowzxx](https://github.com/sorrowzxx) , [@arrowhazard](https://github.com/arrowhazard) , [@DOR-fic](https://github.com/DOR-fic) , [@monachgrievings](https://github.com/monachgrievings) , [@SORBETFLAKES](https://github.com/SORBETFLAKES) , [@enumaellsh](https://github.com/enumaellsh) , [@itrap-2245](https://github.com/itrap-2245) , [@Voidirusbli](https://github.com/Voidirusbli) , [@2099s](https://github.com/2099s) , [@kiwiconicc](https://github.com/kiwiconicc) , [@AshesOfHerHalo](https://github.com/AshesOfHerHalo) , [@malepregnancy](https://github.com/malepregnancy) , [@stitched-scars](https://github.com/stitched-scars) , [@sfoths](https://github.com/sfoths) , [@zombdisaster](https://github.com/zombdisaster)
 
 </p>
 

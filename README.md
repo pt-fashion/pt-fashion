@@ -27,7 +27,8 @@ Cutest Ponies :
 </p>
 
 Prettiest Tinted Ponies :
- [@MoriouChoRadio](https://github.com/MoriouChoRadio) , [@electrifypink](https://github.com/electrifypink) , [@joosbocks](https://github.com/joosbocks) , [@AcxerSonnellino](https://github.com/AcxerSonnellino) , [@hamfoolish](https://github.com/hamfoolish) , [@kniferrific](https://github.com/kniferrific)
+</p>
+[@MoriouChoRadio](https://github.com/MoriouChoRadio) , [@electrifypink](https://github.com/electrifypink) , [@joosbocks](https://github.com/joosbocks) , [@AcxerSonnellino](https://github.com/AcxerSonnellino) , [@hamfoolish](https://github.com/hamfoolish) , [@kniferrific](https://github.com/kniferrific)
 
 </p>
 

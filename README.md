@@ -36,4 +36,4 @@ Prettiest Github : [@Canto8](https://github.com/Canto8) , [@N1TEB0I](https://git
 </p>
 
 Characters Of PonyTown :
-[@scrsonmythighs](https://github.com/scrsonmythighs) ponytown's *Saturo Gojo*
+[@scrsonmythighs](https://github.com/scrsonmythighs) ponytown's **Saturo Gojo**

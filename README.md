@@ -53,6 +53,8 @@ Characters Of PonyTown :
 
 [@gamblersi](https://github.com/gamblersi) ponytown's **Chance**
 
+[@glxcierx](https://github.com/glxcierx) ponytown's **Kaboodle**
+
 [@killerbunnies](https://github.com/killerbunnies) ponytown's **Derapchu**
 
 [@pupfies](https://github.com/pupfies) ponytown's **Wifies**

@@ -51,9 +51,19 @@ Characters Of PonyTown :
 
 [@bigguykoi](https://github.com/bigguykoi) ponytown's **Tony Stark**
 
+[@bunchoffriends](https://github.com/bunchoffriends) ponytown's **Anthony Po**
+
+[@ENUMAELlSH](https://github.com/ENUMAELlSH) ponytown's **Gilgamesh**
+
+[@flairforthedramatic](https://github.com/flairforthedramatic) ponytown's **Hanbon**
+
 [@gamblersi](https://github.com/gamblersi) ponytown's **Chance**
 
 [@glxcierx](https://github.com/glxcierx) ponytown's **Kaboodle**
+
+[@itrap-2245](https://github.com/itrap-2245) ponytown's **Itrapped**
+
+[@lronmary](https://github.com/lronmary) ponytown's **Will Wahony**
 
 [@killerbunnies](https://github.com/killerbunnies) ponytown's **Derapchu**
 
@@ -61,11 +71,25 @@ Characters Of PonyTown :
 
 [@puphacker](https://github.com/puphacker) ponytown's **007n7**
 
+[@PURSUITCORE](https://github.com/PURSUITCORE) ponytown's **Bendy**
+
 [@realdustsans](https://github.com/realdustsans) ponytown's **Dusk Sans**
+
+[@ReplicaOfAffection](https://github.com/ReplicaOfAffection) ponytown's **Fukua**
+
+[@ramudaa](https://github.com/ramudaa) ponytown's **Ramuda Amemura**
 
 [@sorbetflakes](https://github.com/sorbetflakes) ponytown's **Cuphead**
 
-[@scrsonmythighs](https://github.com/scrsonmythighs) ponytown's **Saturo Gojo**
+[@scrsonmythighs](https://github.com/scrsonmythighs) ponytown's **Satoru Gojo**
+
+[@toxicgemstone](https://github.com/toxicgemstone) ponytown's **Coy Piso**
+
+[@vatrinyasin](https://github.com/vatrinyasin) ponytown's **Sae Itoshi**
 
 [@waverIy](https://github.com/waveriy) ponytown's **Twoface**
+
+[@wolfcutiee](https://github.com/wolfcutiee) ponytown's **Smarty Pants**
+
+
 

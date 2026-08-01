@@ -17,13 +17,13 @@ PonyTown Fashion
 
 Pretties Ponies :
 
-[@SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST) , [@misfortunes-s](https://github.com/misfortunes-s) , [@NorthernShine](https://github.com/NorthernShine) , [@evbomc](https://github.com/evbomc) , [@OV3RCA5T](https://github.com/OV3RCA5T) , [@aklangell](https://github.com/aklangell) , [@pixstrs](https://github.com/pixstrs) , [@cellbito](https://github.com/cellbito) , [@FANIELLE](https://github.com/FANIELLE) , [@poisonedRitual](https://github.com/poisonedritual) , [@velvettoru](https://github.com/velvettoru) , [@whokilledmarkiplier](https://github.com/whokilledmarkiplier) , [@lronmary](https://github.com/lronmary) , [@lethaldevotion](https://github.com/lethaldevotion) , [@cosmopilled](https://github.com/cosmopilled) , [@MavaKorolev](https://github.com/MavaKorolev) , [@viimsey](https://github.com/viimsey) , [@winnietism](https://github.com/winnietism) , [@vatrinyasin](https://github.com/vatrinyasin) , [@njqh](https://github.com/njqh) , [@MrNovalite](https://github.com/MrNovalite) , [@Bigguykoi](https://github.com/Bigguykoi) , [@elysiaIing](https://github.com/elysiaIing) , [@pastellcloudyy](https://github.com/pastellcloudyy) , [@dr-vanta](https://github.com/dr-vanta) , [@yvoisen](https://github.com/yvoisen) , [@PARTYPUPPYY](https://github.com/PARTYPUPPYY) , [@uictim](https://github.com/uictim) , [@ch3shyre](https://github.com/ch3shyre) , [@princezammiest](https://github.com/princezammiest) , [@SQUEVIL](https://github.com/SQUEVIL)
+[@SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST) , [@misfortunes-s](https://github.com/misfortunes-s) , [@NorthernShine](https://github.com/NorthernShine) , [@evbomc](https://github.com/evbomc) , [@OV3RCA5T](https://github.com/OV3RCA5T) , [@aklangell](https://github.com/aklangell) , [@pixstrs](https://github.com/pixstrs) , [@cellbito](https://github.com/cellbito) , [@FANIELLE](https://github.com/FANIELLE) , [@poisonedRitual](https://github.com/poisonedritual) , [@velvettoru](https://github.com/velvettoru) , [@whokilledmarkiplier](https://github.com/whokilledmarkiplier) , [@lronmary](https://github.com/lronmary) , [@lethaldevotion](https://github.com/lethaldevotion) , [@cosmopilled](https://github.com/cosmopilled) , [@MavaKorolev](https://github.com/MavaKorolev) , [@viimsey](https://github.com/viimsey) , [@winnietism](https://github.com/winnietism) , [@vatrinyasin](https://github.com/vatrinyasin) , [@njqh](https://github.com/njqh) , [@MrNovalite](https://github.com/MrNovalite) , [@Bigguykoi](https://github.com/Bigguykoi) , [@elysiaIing](https://github.com/elysiaIing) , [@pastellcloudyy](https://github.com/pastellcloudyy) , [@dr-vanta](https://github.com/dr-vanta) , [@yvoisen](https://github.com/yvoisen) , [@PARTYPUPPYY](https://github.com/PARTYPUPPYY) , [@uictim](https://github.com/uictim) , [@ch3shyre](https://github.com/ch3shyre) , [@princezammiest](https://github.com/princezammiest) , [@SQUEVIL](https://github.com/SQUEVIL) , [@yusions](https://github.com/yusions)
 
 </p>
 
 Cutest Ponies :
 
-[@5poke](https://github.com/5poke) , [@gamblersi](https://github.com/gamblersi) , [@emariyaoi](https://github.com/emariyaoi) , [@yubelsrevenge](https://github.com/yubelsrevenge) , [@garferss](https://github.com/garferss) , [@Mizziepoms](https://github.com/Mizziepoms) , [@pupfies](https://github.com/pupfies) , [@gfpaw](https://github.com/gfpaw) , [@SUGERPUNK](https://github.com/SUGERPUNK) , [@JellyBeantheFREAK](https://github.com/JellyBeantheFREAK) , [@ramudaa](https://github.com/ramudaa) , [@MINDELOX](https://github.com/MINDELOX) , [@pwppy](https://github.com/pwppy) , [@x2llwake](https://github.com/x2llwake) , [@ravensev](https://github.com/ravensev) , [@spiralwindly](https://github.com/spiralwindly) , [@nameless-boy](https://github.com/nameless-boy) , [@theultimatekohamster](https://github.com/theultimatekohamster) , [@killerbunnies](https://github.com/killerbunnies) , [@kaleidoskulls](https://github.com/kaleidoskulls) , [@parameowia](https://github.com/parameowia) , [@yaoiliker](https://github.com/yaoiliker) , [@yanderetan](https://github.com/yanderetan) ,[@seraphlazer](https://github.com/seraphlazer) ,[@Tordplushie](https://github.com/Tordplushie) , [@kingofalejandro](https://github.com/kingofalejandro)
+[@5poke](https://github.com/5poke) , [@gamblersi](https://github.com/gamblersi) , [@emariyaoi](https://github.com/emariyaoi) , [@yubelsrevenge](https://github.com/yubelsrevenge) , [@garferss](https://github.com/garferss) , [@Mizziepoms](https://github.com/Mizziepoms) , [@pupfies](https://github.com/pupfies) , [@gfpaw](https://github.com/gfpaw) , [@SUGERPUNK](https://github.com/SUGERPUNK) , [@JellyBeantheFREAK](https://github.com/JellyBeantheFREAK) , [@ramudaa](https://github.com/ramudaa) , [@MINDELOX](https://github.com/MINDELOX) , [@pwppy](https://github.com/pwppy) , [@x2llwake](https://github.com/x2llwake) , [@ravensev](https://github.com/ravensev) , [@spiralwindly](https://github.com/spiralwindly) , [@nameless-boy](https://github.com/nameless-boy) , [@theultimatekohamster](https://github.com/theultimatekohamster) , [@killerbunnies](https://github.com/killerbunnies) , [@kaleidoskulls](https://github.com/kaleidoskulls) , [@parameowia](https://github.com/parameowia) , [@yaoiliker](https://github.com/yaoiliker) , [@yanderetan](https://github.com/yanderetan) ,[@seraphlazer](https://github.com/seraphlazer) ,[@Tordplushie](https://github.com/Tordplushie) , [@kingofalejandro](https://github.com/kingofalejandro) , [@avenueq](https://github.com/avenueq) , [@pawfectangel](https://github.com/pawfectangel)
 
 </p>
 
@@ -49,7 +49,13 @@ Characters Of PonyTown :
 
 [@01-800-PAPU](https://github.com/01-800-PAPU) ponytown's **Aldo_Geo**
 
+[@2quet](https://github.com/2quet) ponytown's **Bluudud**
+
+[@avenueq](https://github.com/avenueq) ponytown's **Aventurine**
+
 [@bigguykoi](https://github.com/bigguykoi) ponytown's **Tony Stark**
+
+[@blg-shot](https://github.com/blg-shot) ponytown's **Spamton**
 
 [@B3RDLY](https://github.com/B3RDLY) ponytown's **Berdly**
 
@@ -69,6 +75,8 @@ Characters Of PonyTown :
 
 [@killerbunnies](https://github.com/killerbunnies) ponytown's **Derapchu**
 
+[@kniferrific](https://github.com/kniferrific) ponytown's **Craig Tucker**
+
 [@Misteria0](https://github.com/Misteria0) ponytown's **Kenny McCormick**
 
 [@pupfies](https://github.com/pupfies) ponytown's **Wifies**
@@ -76,6 +84,8 @@ Characters Of PonyTown :
 [@puphacker](https://github.com/puphacker) ponytown's **007n7**
 
 [@PURSUITCORE](https://github.com/PURSUITCORE) ponytown's **Bendy**
+
+[@planetlordd](https://github.com/planetlordd) ponytown's **Planetlord**
 
 [@rainyourday](https://github.com/rainyourday) ponytown's **Purple** (animation vs minecraft)
 
@@ -87,9 +97,15 @@ Characters Of PonyTown :
 
 [@sorbetflakes](https://github.com/sorbetflakes) ponytown's **Cuphead**
 
+[@sakasamagirlfeeling](https://github.com/sakasamagirlfeeling) ponytown's **Osage-chan**
+
 [@scrsonmythighs](https://github.com/scrsonmythighs) ponytown's **Satoru Gojo**
 
+[@starfollower](https://github.com/starfollower) ponytown's **Rocket**
+
 [@toxicgemstone](https://github.com/toxicgemstone) ponytown's **Coy Piso**
+
+[@undyingregret](https://github.com/undyingregret) ponytown's **Two Time**
 
 [@vatrinyasin](https://github.com/vatrinyasin) ponytown's **Sae Itoshi**
 

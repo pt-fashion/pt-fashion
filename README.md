@@ -61,9 +61,15 @@ Characters Of PonyTown :
 
 [@bunchoffriends](https://github.com/bunchoffriends) ponytown's **Anthony Po**
 
+[@DEADP0ET](https://github.com/DEADP0ET) ponytown's **Yuji Itadori**
+
 [@ENUMAELlSH](https://github.com/ENUMAELlSH) ponytown's **Gilgamesh**
 
 [@flairforthedramatic](https://github.com/flairforthedramatic) ponytown's **Hanbon**
+
+[@fourthdoctor](https://github.com/fourthdoctor) ponytown's **Timelord**
+
+[@fanielle](https://github.com/fanielle) ponytown's **Scythe**
 
 [@gamblersi](https://github.com/gamblersi) ponytown's **Chance**
 
@@ -77,6 +83,10 @@ Characters Of PonyTown :
 
 [@kniferrific](https://github.com/kniferrific) ponytown's **Craig Tucker**
 
+[@Knuckl3z](https://github.com/Knuckl3z) ponytown's **Shadow The Hedgehog**
+
+[@loveruffle](https://github.com/loveruffle) ponytown's **Isagi Yoichi**
+
 [@Misteria0](https://github.com/Misteria0) ponytown's **Kenny McCormick**
 
 [@pupfies](https://github.com/pupfies) ponytown's **Wifies**
@@ -86,6 +96,8 @@ Characters Of PonyTown :
 [@PURSUITCORE](https://github.com/PURSUITCORE) ponytown's **Bendy**
 
 [@planetlordd](https://github.com/planetlordd) ponytown's **Planetlord**
+
+[@princezammiest](https://github.com/princezammiest) ponytown's **Green** (AUS)
 
 [@rainyourday](https://github.com/rainyourday) ponytown's **Purple** (animation vs minecraft)
 
@@ -102,6 +114,8 @@ Characters Of PonyTown :
 [@scrsonmythighs](https://github.com/scrsonmythighs) ponytown's **Satoru Gojo**
 
 [@starfollower](https://github.com/starfollower) ponytown's **Rocket**
+
+[@sir-chloe](https://github.com/sir-chloe) ponytown's **Astro Novalite**
 
 [@toxicgemstone](https://github.com/toxicgemstone) ponytown's **Coy Piso**
 

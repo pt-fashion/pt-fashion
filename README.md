@@ -137,6 +137,8 @@ Characters Of PonyTown :
 
 [@PorcelainDolls](https://github.com/PorcelainDolls) ponytown's **Tisha The Tissue Box**
 
+[@promiseduo](https://github.com/promiseduo) ponytown's **Jaden_man**
+
 [@rainyourday](https://github.com/rainyourday) ponytown's **Purple** (animation vs minecraft)
 
 [@realdustsans](https://github.com/realdustsans) ponytown's **Dusk Sans**

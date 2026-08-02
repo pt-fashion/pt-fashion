@@ -7,11 +7,11 @@ PonyTown Fashion
 
 </p>
 
-<p align="center">This is all for entertainment. 
+<p align="center">This is all for entertainment. Please tell us if someone added here is problematic in our <a href="https://ptfashion.straw.page">strawpage</a>
 
 </p>
 
-<p align="center"> Nominate someone !   <a href="https://ptfashion.straw.page">Strawpage</a>
+<p align="center"> Nominate someone !   
 
 </p></p>
 

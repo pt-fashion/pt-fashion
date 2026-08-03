@@ -189,8 +189,6 @@ Characters Of PonyTown :
 
 [@tomatosu](https://github.com/tomatosu) ponytown's **Sasuke Uchiha**
 
-[@](https://github.com/)
-
 [@undyingregret](https://github.com/undyingregret) ponytown's **Two Time**
 
 [@vatrinyasin](https://github.com/vatrinyasin) ponytown's **Sae Itoshi**

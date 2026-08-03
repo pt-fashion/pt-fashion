@@ -187,6 +187,8 @@ Characters Of PonyTown :
 
 [@shiinonome](https://github.com/shiinonome) ponytown's **Ena Shinonome**
 
+[@sweet-scar](https://github.com/sweet-scar) ponytown's **Sua** (alien stage/zombie stage)
+
 [@toxicgemstone](https://github.com/toxicgemstone) ponytown's **Coy Piso**
 
 [@tomatosu](https://github.com/tomatosu) ponytown's **Sasuke Uchiha**

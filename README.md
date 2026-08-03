@@ -119,7 +119,7 @@ Characters Of PonyTown :
 
 [@iiyakuryakin](https://github.com/iiyakuryakin) ponytown's **Batman**
 
-[@lronmary](https://github.com/lronmary) ponytown's **Will Wahony**
+[@infernalcrisis](https://github.com/infernalcrisis) ponytown's **Scaramouche**
 
 [@killerbunnies](https://github.com/killerbunnies) ponytown's **Derapchu**
 
@@ -130,6 +130,8 @@ Characters Of PonyTown :
 [@kiwiconicc](https://github.com/kiwiconicc) ponytown's **Saiki Kusuo**
 
 [@loveruffle](https://github.com/loveruffle) ponytown's **Isagi Yoichi**
+
+[@lronmary](https://github.com/lronmary) ponytown's **Will Wahony**
 
 [@lostcxuse](https://github.com/lostcxuse) ponytown's **Nezoshoki**
 

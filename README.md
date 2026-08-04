@@ -149,6 +149,8 @@ Characters Of PonyTown :
 
 [@kaboodIe](https://github.com/kaboodIe) ponytown's **Kaboodle**
 
+[@kruItepes](https://github.com/kruItepes) ponytown's **Cherie** (cherry crush)
+
 [@loveruffle](https://github.com/loveruffle) ponytown's **Isagi Yoichi**
 
 [@lronmary](https://github.com/lronmary) ponytown's **Will Wahony**

@@ -35,7 +35,7 @@ Prettiest Tinted Ponies :
 
 Coolest Ponies :
 
-[@zouweemama](https://github.com/zouweemama) , [@Xaplastcore](https://github.com/Xaplastcore) , [@decayingcorpses](https://github.com/decayingcorpses) , [@horroryaoi](https://github.com/horroryaoi) , [@Infugue](https://github.com/Infugue) , [@141ZXR](https://github.com/141ZXR) , [@01-800-PAPU](https://github.com/01-800-PAPU) , [@timaeustt](https://github.com/timaeustt) , [@sorrowzxx](https://github.com/sorrowzxx) , [@arrowhazard](https://github.com/arrowhazard) , [@DOR-fic](https://github.com/DOR-fic) , [@monachgrievings](https://github.com/monachgrievings) , [@SORBETFLAKES](https://github.com/SORBETFLAKES) , [@enumaellsh](https://github.com/enumaellsh) , [@itrap-2245](https://github.com/itrap-2245) , [@Voidirusbli](https://github.com/Voidirusbli) , [@2099s](https://github.com/2099s) , [@kiwiconicc](https://github.com/kiwiconicc) , [@AshesOfHerHalo](https://github.com/AshesOfHerHalo) , [@malepregnancy](https://github.com/malepregnancy) , [@stitched-scars](https://github.com/stitched-scars) , [@sfoths](https://github.com/sfoths) , [@zombdisaster](https://github.com/zombdisaster) ,[@waverIy](https://github.com/waverIy) , [@realdustsans](https://github.com/realdustsans) , [@CANNIVORE](https://github.com/CANNIVORE) ,[@MOKADORABLE](https://github.com/MOKADORABLE)
+[@zouweemama](https://github.com/zouweemama) , [@Xaplastcore](https://github.com/Xaplastcore) , [@decayingcorpses](https://github.com/decayingcorpses) , [@horroryaoi](https://github.com/horroryaoi) , [@Infugue](https://github.com/Infugue) , [@141ZXR](https://github.com/141ZXR) , [@01-800-PAPU](https://github.com/01-800-PAPU) , [@timaeustt](https://github.com/timaeustt) , [@sorrowzxx](https://github.com/sorrowzxx) , [@arrowhazard](https://github.com/arrowhazard) , [@DOR-fic](https://github.com/DOR-fic) , [@monachgrievings](https://github.com/monachgrievings) , [@SORBETFLAKES](https://github.com/SORBETFLAKES) , [@enumaellsh](https://github.com/enumaellsh) , [@itrap-2245](https://github.com/itrap-2245) , [@Voidirusbli](https://github.com/Voidirusbli) , [@2099s](https://github.com/2099s) , [@kiwiconicc](https://github.com/kiwiconicc) , [@AshesOfHerHalo](https://github.com/AshesOfHerHalo) , [@malepregnancy](https://github.com/malepregnancy) , [@stitched-scars](https://github.com/stitched-scars) , [@sfoths](https://github.com/sfoths) , [@zombdisaster](https://github.com/zombdisaster) ,[@waverIy](https://github.com/waverIy) , [@realdustsans](https://github.com/realdustsans) , [@CANNIVORE](https://github.com/CANNIVORE) ,[@MOKADORABLE](https://github.com/MOKADORABLE) , [@chick-habit](https://github.com/chick-habit)
 
 </p>
 
@@ -88,6 +88,8 @@ Characters Of PonyTown :
 [@CloveredFields](https://github.com/CloveredFields) ponytown's **Directorfies**
 
 [@cellbito](https://github.com/cellbito) ponytown's **Q!Cellbit**
+
+[@chick-habit](https://github.com/chick-habit) ponytown's **Murdoc Niccals** (gorillaz)
 
 [@DEADP0ET](https://github.com/DEADP0ET) ponytown's **Yuji Itadori**
 
@@ -224,6 +226,8 @@ Characters Of PonyTown :
 [@toxicgemstone](https://github.com/toxicgemstone) ponytown's **Coy Piso**
 
 [@tomatosu](https://github.com/tomatosu) ponytown's **Sasuke Uchiha**
+
+[@TheHacker7n7](https://github.com/TheHacker7n7) ponytown's **Verity**
 
 [@undyingregret](https://github.com/undyingregret) ponytown's **Two Time**
 

@@ -55,6 +55,8 @@ Characters Of PonyTown :
 
 [@2099s](https://github.com/2099s) ponytown's **Miguel O'Hara**
 
+[@67kei](https://github.com/67kei) ponytown's **Sp6**
+
 [@avenueq](https://github.com/avenueq) ponytown's **Aventurine**
 
 [@AcxerSonnellino](https://github.com/AcxerSonnellino) ponytown's **Guest 1337**
@@ -163,6 +165,8 @@ Characters Of PonyTown :
 
 [@kruItepes](https://github.com/kruItepes) ponytown's **Cherie** (cherry crush)
 
+[@kenoscollapse](https://github.com/kenoscollapse) ponytown's **Mart** (nullscape) 
+
 [@loveruffle](https://github.com/loveruffle) ponytown's **Isagi Yoichi**
 
 [@lronmary](https://github.com/lronmary) ponytown's **Will Wahony**
@@ -180,6 +184,8 @@ Characters Of PonyTown :
 [@monoxiides](https://github.com/monoxiides) ponytown's **Eunoia**
 
 [@mizziepoms](https://github.com/mizziepoms) ponytown's **Tinakitten**
+
+[@mistbound](https://github.com/mistbound) ponytown's **Jecka** (class of 09) 
 
 [@Nadd-nadd](https://github.com/Nadd-nadd) ponytown's **Sigil** (nullscape) 
 

@@ -51,6 +51,8 @@ Characters Of PonyTown :
 
 [@12r0ds](https://github.com/12r0ds) ponytown's **Banhammer**
 
+[@1-IV](https://github.com/1-IV) ponytown's **SpokeIsHere**
+
 [@2quet](https://github.com/2quet) ponytown's **Bluudud**
 
 [@2099s](https://github.com/2099s) ponytown's **Miguel O'Hara**
@@ -282,6 +284,8 @@ Characters Of PonyTown :
 [@VIL-ILY](https://github.com/VIL-ILY) ponytown's **Rook Hunt** (twisted wonderland) 
 
 [@vampireyaoi](https://github.com/vampireyaoi) ponytown's **Sunday** (genshin impact) 
+
+[@vankitorii](https://github.com/vankitorii) ponytown's **Aesop Carl** (identity v)
 
 [@waverIy](https://github.com/waveriy) ponytown's **Twoface**
 

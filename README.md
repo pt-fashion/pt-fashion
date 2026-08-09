@@ -93,6 +93,8 @@ Characters Of PonyTown :
 
 [@brittlestars](https://github.com/brittlestars) ponytown's **Agott Arklaum** (witch hat atelier) 
 
+[@BatzUzi](https://github.com/BatzUzi) ponytown's **Uzi**
+
 [@conexlonn](https://github.com/conexlonn) ponytown's **Sharpness**
 
 [@cattypillaar](https://github.com/cattypillaar) ponytown's **Elquackity**

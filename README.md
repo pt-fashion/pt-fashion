@@ -11,7 +11,7 @@ PonyTown Fashion
 
 </p>
 
-<p align="center"> **PLEASE** dont spam while nominating someone !   
+<p align="center"> PLEASE dont spam when nominating someone !   
 
 </p></p>
 

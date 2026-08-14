@@ -15,7 +15,7 @@ PonyTown Fashion
 
 </p>
 
-own by [@kaboodIe](https://github.com/kaboodIe)
+<p align="center"> own by <a href="https://github.com/kaboodIe">@kaboodIe</a>
 
 </p>
 

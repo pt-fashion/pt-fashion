@@ -35,7 +35,7 @@ Prettiest Tinted Ponies :
 
 Coolest Ponies :
 
-[@zouweemama](https://github.com/zouweemama) , [@Xaplastcore](https://github.com/Xaplastcore) , [@decayingcorpses](https://github.com/decayingcorpses) , [@horroryaoi](https://github.com/horroryaoi) , [@Infugue](https://github.com/Infugue) , [@141ZXR](https://github.com/141ZXR) , [@01-800-PAPU](https://github.com/01-800-PAPU) , [@timaeustt](https://github.com/timaeustt) , [@sorrowzxx](https://github.com/sorrowzxx) , [@arrowhazard](https://github.com/arrowhazard) , [@DOR-fic](https://github.com/DOR-fic) , [@monachgrievings](https://github.com/monachgrievings) , [@SORBETFLAKES](https://github.com/SORBETFLAKES) , [@enumaellsh](https://github.com/enumaellsh) , [@itrap-2245](https://github.com/itrap-2245) , [@Voidirusbli](https://github.com/Voidirusbli) , [@2099s](https://github.com/2099s) , [@kiwiconicc](https://github.com/kiwiconicc) , [@AshesOfHerHalo](https://github.com/AshesOfHerHalo) , [@malepregnancy](https://github.com/malepregnancy) , [@stitched-scars](https://github.com/stitched-scars) , [@sfoths](https://github.com/sfoths) , [@zombdisaster](https://github.com/zombdisaster) ,[@waverIy](https://github.com/waverIy) , [@realdustsans](https://github.com/realdustsans) , [@CANNIVORE](https://github.com/CANNIVORE) ,[@MOKADORABLE](https://github.com/MOKADORABLE) , [@chick-habit](https://github.com/chick-habit) , [@radiolysis](https://github.com/radiolysis) ,[@NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) , [@altruistdeviil](https://github.com/altruistdeviil)
+[@zouweemama](https://github.com/zouweemama) , [@Xaplastcore](https://github.com/Xaplastcore) , [@decayingcorpses](https://github.com/decayingcorpses) , [@horroryaoi](https://github.com/horroryaoi) , [@Infugue](https://github.com/Infugue) , [@141ZXR](https://github.com/141ZXR) , [@01-800-PAPU](https://github.com/01-800-PAPU) , [@timaeustt](https://github.com/timaeustt) , [@sorrowzxx](https://github.com/sorrowzxx) , [@arrowhazard](https://github.com/arrowhazard) , [@DOR-fic](https://github.com/DOR-fic) , [@monachgrievings](https://github.com/monachgrievings) , [@SORBETFLAKES](https://github.com/SORBETFLAKES) , [@enumaellsh](https://github.com/enumaellsh) , [@itrap-2245](https://github.com/itrap-2245) , [@Voidirusbli](https://github.com/Voidirusbli) , [@2099s](https://github.com/2099s) , [@kiwiconicc](https://github.com/kiwiconicc) , [@AshesOfHerHalo](https://github.com/AshesOfHerHalo) , [@malepregnancy](https://github.com/malepregnancy) , [@stitched-scars](https://github.com/stitched-scars) , [@sfoths](https://github.com/sfoths) , [@zombdisaster](https://github.com/zombdisaster) ,[@waverIy](https://github.com/waverIy) , [@realdustsans](https://github.com/realdustsans) , [@CANNIVORE](https://github.com/CANNIVORE) ,[@MOKADORABLE](https://github.com/MOKADORABLE) , [@chick-habit](https://github.com/chick-habit) , [@radiolysis](https://github.com/radiolysis) ,[@NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) , [@altruistdeviil](https://github.com/altruistdeviil) , [@Ham-milton](https://github.com/Ham-milton)
 
 </p>
 
@@ -52,6 +52,8 @@ Characters Of PonyTown :
 [@12r0ds](https://github.com/12r0ds) ponytown's **Banhammer**
 
 [@1-IV](https://github.com/1-IV) ponytown's **SpokeIsHere**
+
+[@141ZXR](https://github.com/141ZXR) ponytown's **Soap Mactavish**
 
 [@2quet](https://github.com/2quet) ponytown's **Bluudud**
 
@@ -77,9 +79,7 @@ Characters Of PonyTown :
 
 [@A-ReGect](https://github.com/A-ReGect) ponytown's **Tawny** (vsi: fakeout) 
 
-[@arachnidace](https://github.com/arachnidace) ponytown's **Akkurone**
-
-[@aelijiao](https://github.com/aelijiao) ponytown's **Rogue** (xmen) 
+[@arachnidace](https://github.com/arachnidace) ponytown's **Akkurone** 
 
 [@bigguykoi](https://github.com/bigguykoi) ponytown's **Tony Stark**
 
@@ -102,6 +102,8 @@ Characters Of PonyTown :
 [@BatzUzi](https://github.com/BatzUzi) ponytown's **Uzi**
 
 [@BadlyAddicted](https://github.com/BadlyAddicted) ponytown's **Devin Wolf** (TMIRB)
+
+[@BloodDove](https://github.com/BloodDove) ponytown's **Peter** (hazbin hotel) 
 
 [@conexlonn](https://github.com/conexlonn) ponytown's **Sharpness**
 
@@ -199,6 +201,8 @@ Characters Of PonyTown :
 
 [@HiromiAndSanemiLover](https://github.com/HiromiAndSanemiLover) ponytown's **Venti**
 
+[@Ham-milton](https://github.com/Ham-milton) ponytown's **Scared French Soldier** (guts and blackpowder) 
+
 [@itrap-2245](https://github.com/itrap-2245) ponytown's **Itrapped**
 
 [@iiyakuryakin](https://github.com/iiyakuryakin) ponytown's **Batman**
@@ -245,6 +249,8 @@ Characters Of PonyTown :
 
 [@LAWRlE](https://github.com/LAWRlE) ponytown's **Lawrie**
 
+[@lovelydrug](https://github.com/lovelydrug) ponytown's **Angel Devil**
+
 [@Misteria0](https://github.com/Misteria0) ponytown's **Kenny McCormick**
 
 [@MiguelOharaL0ver](https://github.com/MiguelOharaL0ver) ponytown's **Lyla** (atsv) 
@@ -278,6 +284,8 @@ Characters Of PonyTown :
 [@NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) ponytown's **Myth Cuphead**
 
 [@oncology-angel](https://github.com/oncology-angel) ponytown's **Shuntaro Chishiya**
+
+[@Opheliatz](https://github.com/Opheliatz) ponytown's **Don Sonnelino**
 
 [@pupfies](https://github.com/pupfies) ponytown's **Wifies**
 
@@ -327,6 +335,8 @@ Characters Of PonyTown :
 
 [@rvsseII](https://github.com/rvsseII) ponytown's **Patrick Jane**
 
+[@RQGUE](https://github.com/RQGUE) ponytown's **Rogue** (xmen)
+
 [@sorbetflakes](https://github.com/sorbetflakes) ponytown's **Cuphead**
 
 [@sakasamagirlfeeling](https://github.com/sakasamagirlfeeling) ponytown's **Osage-chan**
@@ -365,6 +375,8 @@ Characters Of PonyTown :
 
 [@sa9arata](https://github.com/sa9arata) ponytown's **Saparata**
 
+[@saucebxsss](https://github.com/saucebxsss) ponytown's **Katie B**
+
 [@toxicgemstone](https://github.com/toxicgemstone) ponytown's **Coy Piso**
 
 [@tomatosu](https://github.com/tomatosu) ponytown's **Sasuke Uchiha**
@@ -386,6 +398,8 @@ Characters Of PonyTown :
 [@Tillsguitar](https://github.com/Tillsguitar) ponytown's **Till**
 
 [@Tillaholic](https://github.com/Tillaholic) ponytown's **Ivan** (as)
+
+[@TeaReverie](https://github.com/TeaReverie) ponytown's **Rafayel** (love and deepspace) 
 
 [@undyingregret](https://github.com/undyingregret) ponytown's **Two Time**
 

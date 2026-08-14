@@ -13,7 +13,11 @@ PonyTown Fashion
 
 <p align="center"> PLEASE dont spam when nominating someone !   
 
-</p></p>
+</p>
+
+own by [@kaboodIe](https://github.com/kaboodIe)
+
+</p>
 
 Pretties Ponies :
 

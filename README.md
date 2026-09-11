@@ -19,7 +19,7 @@ PonyTown Fashion
 
 </p>
 
-<p align="center"> own by <a href="https://github.com/kaboodIe">@kaboodIe</a>
+<p align="center"> own by <a href="https://github.com/kaboodIe">@kaboodIe</a> - dm @hummer5718s on discord if needed
 
 </p>
 

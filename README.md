@@ -37,7 +37,7 @@ Cutest Ponies :
 
 Prettiest Tinted Ponies :
 
-[@MoriouChoRadio](https://github.com/MoriouChoRadio) , [@electrifypink](https://github.com/electrifypink) , [@joosbocks](https://github.com/joosbocks) , [@AcxerSonnellino](https://github.com/AcxerSonnellino) , [@hamfoolish](https://github.com/hamfoolish) , [@kniferrific](https://github.com/kniferrific) ,[@kaijine](https://github.com/kaijine) , [@apkdox](https://github.com/apkdox) ,[@lov3wires](https://github.com/lov3wires) , [@ARCHIvE-ofourown](https://github.com/ARCHIvE-ofourown) , [@purefatal](https://github.com/purefatal)
+[@MoriouChoRadio](https://github.com/MoriouChoRadio) , [@electrifypink](https://github.com/electrifypink) , [@joosbocks](https://github.com/joosbocks) , [@AcxerSonnellino](https://github.com/AcxerSonnellino) , [@hamfoolish](https://github.com/hamfoolish) , [@kniferrific](https://github.com/kniferrific) ,[@kaijine](https://github.com/kaijine) , [@apkdox](https://github.com/apkdox) ,[@lov3wires](https://github.com/lov3wires) , [@ARCHIvE-ofourown](https://github.com/ARCHIvE-ofourown) , [@purefatal](https://github.com/purefatal) , [@blsuf](https://github.com/blsuf)
 
 </p>
 
@@ -353,6 +353,8 @@ Characters Of PonyTown :
 
 [@PinkiePieExplosion](https://github.com/PinkiePieExplosion) ponytown's **Fez**
 
+[@pandy1234-hub](https://github.com/pandy1234-hub) ponytown's **Poppy** (dandys world) 
+
 [@rainyourday](https://github.com/rainyourday) ponytown's **Purple** (animation vs minecraft)
 
 [@realdustsans](https://github.com/realdustsans) ponytown's **Dusk Sans**
@@ -417,6 +419,8 @@ Characters Of PonyTown :
 
 [@supernova-remnants](https://github.com/supernova-remnants) ponytown's **Thornstaff**
 
+[@sournoxious](https://github.com/sournoxious) ponytown's **Deadpool**
+
 [@toxicgemstone](https://github.com/toxicgemstone) ponytown's **Coy Piso**
 
 [@tomatosu](https://github.com/tomatosu) ponytown's **Sasuke Uchiha**
@@ -445,6 +449,10 @@ Characters Of PonyTown :
 
 [@thenamesSX](https://github.com/thenamesSX) ponytown's **TheNamesSX**
 
+[@teokasanetetogf](https://github.com/teokasanetetogf) ponytown's **Kasane Teto**
+
+[@THEHEAVENOFR0SES](https://github.com/THEHEAVENOFR0SES) ponytown's **Aaron Daniel Hunter**
+
 [@undyingregret](https://github.com/undyingregret) ponytown's **Two Time**
 
 [@untitledfate](https://github.com/untitledfate) ponytown's **SpokeIsHere**
@@ -465,6 +473,8 @@ Characters Of PonyTown :
 
 [@vNaiLuck](https://github.com/vNaiLuck) ponytown's **Lime** (aus)
 
+[@VIOLETBUGZ](https://github.com/VIOLETBUGZ) ponytown's **Brad Thaniyel**
+
 [@waverIy](https://github.com/waveriy) ponytown's **Twoface**
 
 [@wolfcutiee](https://github.com/wolfcutiee) ponytown's **Smarty Pants**
@@ -474,6 +484,8 @@ Characters Of PonyTown :
 [@weakflowers](https://github.com/weakflowers) ponytown's **Deltarune**
 
 [@wickedirene](https://github.com/wickedirene) ponytown's **Avery**
+
+[@weirdoses](https://github.com/weirdoses) ponytown's **Jaide** (project_jaide)
 
 [@xoxo1ia](https://github.com/xoxo1ia) ponytown's **Jeff the Killer**
 

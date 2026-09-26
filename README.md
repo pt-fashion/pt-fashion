@@ -479,6 +479,8 @@ Characters Of PonyTown :
 
 [@zandiik](https://github.com/zandiik) ponytown's **Dottore** (genshin impact) 
 
+[@z0mbiepup](https://github.com/z0mbiepup) ponytown's **Yatta**
+
 [@yusions](https://github.com/yusions) ponytown's **2hollis**
 
 [@yaasuhiro](https://github.com/yaasuhiro) ponytown's **Yasuhiro Hagakure**

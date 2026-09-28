@@ -8,7 +8,10 @@ PonyTown Fashion
 </p>
 
 <p align="center">This is all for entertainment. Please tell us if someone added here is problematic in our <a href="https://ptfashion.straw.page">strawpage</a> + reasons / evidences,
- **do not spread false informations about someone just because they nominated themselves as the character you wanted.**
+
+</p>
+
+**do not spread false informations about someone just because they nominated themselves as the character you wanted.**
 
 </p>
 

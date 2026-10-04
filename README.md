@@ -369,8 +369,6 @@ Characters Of PonyTown :
 
 [@ramudaa](https://github.com/ramudaa) ponytown's **Ramuda Amemura**
 
-[@Rakviyem](https://github.com/Rakviyem) ponytown's **Swapful** (dod)
-
 [@rockete3r](https://github.com/rockete3r) ponytown's **So6**
 
 [@ranyakumopilled](https://github.com/ranyakumopilled) ponytown's **Ran Yakumo** (touhou project) 

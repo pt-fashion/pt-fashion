@@ -29,7 +29,7 @@ PonyTown Fashion
 
 </p>
 
-update ! added new catagory, you can now nominate yourself in "duos biggest fan" ^_< example - id like to nominate (username) as (duos name) 's biggest fan ! 
+**update ! added new catagory, you can now nominate yourself in "duos biggest fan" ^_< example - id like to nominate (username) as (duos name) 's biggest fan !**
 
 </p>
 

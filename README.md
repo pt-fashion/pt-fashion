@@ -505,4 +505,6 @@ Characters Of PonyTown :
 
 [@yellowdeltarune](https://github.com/yellowdeltarune) ponytown's **Yellow** (deltarune) 
 
+Duos num1 fan :
 
+(@username) is (duos name) 1st fan !

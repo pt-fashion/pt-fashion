@@ -505,6 +505,6 @@ Characters Of PonyTown :
 
 [@yellowdeltarune](https://github.com/yellowdeltarune) ponytown's **Yellow** (deltarune) 
 
-Duos num1 fan :
+Duos biggest fan :
 
-(@username) is (duos name) 1st fan !
+(@username) is (duos name) 's biggest fan !
